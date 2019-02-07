@@ -1,0 +1,2 @@
+# FriarYouTube
+https://discordapp.com/api/webhooks/543206997273739285/ZqQHR_clf0sNnp0uzlnjde5mI8VoZXFBzI1saglnYJhzvebpYHFDo3K9X5grz7a5CDZ3
